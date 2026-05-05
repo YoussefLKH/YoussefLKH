@@ -2,8 +2,8 @@
 - 👀 I’m interested in TECH and SPORTS
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on challenging projects
-- 📫 How to reach me: youssef.lkh (instagram)
-- ⚡ Fun fact: 
+- 📫 How to reach me: youssef.lkh (instagram) yousseflkh25901@gmail.com (email)
+- ⚡ Fun fact: Ex-college soccer player
 
 <!---
 YoussefLKH/YoussefLKH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
